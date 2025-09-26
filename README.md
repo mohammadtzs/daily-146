@@ -1,2 +1,2 @@
 # daily-146
-new start
+new start , New Life
